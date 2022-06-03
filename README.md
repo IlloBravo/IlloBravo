@@ -1,0 +1,4 @@
+- 👋 Hi, I’m the only and ununcryptable illo
+- 👀 I’m interested in code code code ∞
+- 🌱 I’m currently learning backend! 
+- 💞️ I’m looking to collaborate with the world.
